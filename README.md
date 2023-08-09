@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RASMIYAJAMSHEER
-- 👀 I’m interested in .blockchain in medical field..
+- 👀 I’m interested in .blockchain in Health care
 - 🌱 I’m currently learning ...block chain
 - 💞️ I’m looking to collaborate on ..researchers in blockchain.
 - 📫 How to reach me .mailid:rasmiyamahmood01@gmail.com..
